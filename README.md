@@ -7,6 +7,7 @@ Brainstorming repository for the teen summer adventure project
 Teen Summer Adventure is an analog program similar to Summer Reading Club but for Teens. 
 Adventures are collected in a booklet that is handed out to teens over the summer.
 Adventures are worth entries to win prizes.
+Entries are filled in with teen's ID number
 
 #Motivation
 
