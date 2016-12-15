@@ -16,4 +16,4 @@ We want to publicize what the prizes are.
 
 We want to allow for adventures that require submitting something more complex that something written down in their booklet: pictures, writing, videos, etc
 
-We want a way to show off what teens are submitting, to validate them, to show teens what their peers are creating in conjunction with TSA, to show parents what teens are doing, to have to 
+We want a way to show off what teens are submitting, to validate them, to show teens what their peers are creating in conjunction with TSA, to show parents what teens are doing, to have to show 
