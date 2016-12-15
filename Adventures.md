@@ -249,6 +249,9 @@ What do we not have at the library that we really need?
 
 ****
 
+*NEW*
+
+
 #At Home
 
 *From Last Year*
@@ -280,6 +283,8 @@ Hold a watermelon seed spitting contest with your friends, who won?
 Find your zodiac constellation. Draw it here. 
 
 ****
+
+*NEW*
 
 
 #Reading
@@ -316,6 +321,8 @@ Read a banned book.
 
 ****
 
+*NEW*
+
 
 #In the Community
 
@@ -351,6 +358,8 @@ Visit the historic Stewart Farm.
 
 ****
 
+*NEW*
+
 
 #Writing
 
@@ -384,6 +393,7 @@ What is your favourite place to go to escape?
 
 ****
 
+*NEW*
 
 
 #Online
@@ -418,6 +428,8 @@ Email us your favourite joke without swear words.
 
 ****
 
+*NEW*
+
 
 #In the booklet
 
@@ -442,3 +454,5 @@ Draw your self-portrait--blindfolded!
 Draw your Patronus, with your less dominant hand! 
 
 ****
+
+*NEW*
