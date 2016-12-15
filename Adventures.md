@@ -1,8 +1,8 @@
 #Challenge ideas
 
-To begin with all challenge ideas should be added following this line
+##To begin with all challenge ideas should be added following this line
 
-Challenges should then be sorted into their category below
+##Challenges should then be sorted into their category below
 
 take a selfie in front of library
 
