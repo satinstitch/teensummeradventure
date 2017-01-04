@@ -4,15 +4,9 @@
 
 ##Challenges should then be sorted into their category below
 
-take a selfie in front of library
 
-video tape yourself making a basketball shot at Fleetwood park
 
-selfie of yourself in the Fleetwood pool
 
-Selfie skating at Fleetwood rec centre
-
-Take out a book from the library and take a selfie with it 
 
 Write a review for a book you read
 
@@ -430,6 +424,15 @@ Email us your favourite joke without swear words.
 
 *NEW*
 
+take a selfie in front of library
+
+video tape yourself making a basketball shot at Fleetwood park
+
+selfie of yourself in the Fleetwood pool
+
+Selfie skating at Fleetwood rec centre
+
+Take out a book from the library and take a selfie with it 
 
 #In the booklet
 
