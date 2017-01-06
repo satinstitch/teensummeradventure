@@ -7,76 +7,7 @@
 
 
 
-
-Write a review for a book you read
-
-Visit a new beach
-
-Pick up a book from a genre that you have not tired
-
-Try a new restaurant 
-
-Do a good deed, what was it 
-
-Camping, have a campfire
-
-Try to develop a new skill, take a class for it
-
-Borrow movie from the library 
-
-Go camping
-
-Go to a bbq
-
-Watch a movie in the cinemas
-
-Go a day without phone/computer
-
-Try a new food
-
-Go outside, draw what you see, 
-
-Write about something interesting that happened 
-
-Try a new sport
-
-Read a new book
-
-Watch a movie
-
-Do the harlem shake
-
-Bake a goodie
-
-make videos about what you are doing in the summer
-
-Any events that you participated in, organized by City of Surrey
-
-Any community groups you are a part of 
-
-Pictures of yourself in a memorable place
-
-Something that encourages to go out and is creative like mountain biking or skiing
-
 Some people are not good in writing but could at representing things in different and new innovative ways
-
-Make your own song and send it to us
-
-Draw and create your own princess
-
-Come up with a name for a book you would write
-
-Cook something with your family members and send a picture to us
-
-Visit a store that you’ve never seen before
-
-Cook/bake something new
-
-Do an origami project
-
-Create a short poem
-
-Write your own story with randomly found words in the dictionary
 
 Make your own hybrid of 2 or more animals, name it, etc
 
@@ -245,6 +176,10 @@ What do we not have at the library that we really need?
 
 *NEW*
 
+Pick up a book from a genre that you have not tired
+
+Borrow movie from the library 
+
 
 #At Home
 
@@ -279,6 +214,18 @@ Find your zodiac constellation. Draw it here.
 ****
 
 *NEW*
+
+Go a day without phone/computer
+
+Try a new food
+
+Watch a movie
+
+Bake a goodie
+
+Cook/bake something new
+
+Do an origami project
 
 
 #Reading
@@ -317,6 +264,9 @@ Read a banned book.
 
 *NEW*
 
+Read a new book
+
+
 
 #In the Community
 
@@ -354,6 +304,33 @@ Visit the historic Stewart Farm.
 
 *NEW*
 
+Visit a new beach
+
+Try a new restaurant 
+
+Do a good deed, what was it 
+
+Camping, have a campfire
+
+Try to develop a new skill, take a class for it
+
+Go camping
+
+Go to a bbq
+
+Watch a movie in the cinemas
+
+Try a new sport
+
+Any events that you participated in, organized by City of Surrey
+
+Any community groups you are a part of 
+
+Something that encourages to go out and is creative like mountain biking or skiing
+
+Visit a store that you’ve never seen before
+
+
 
 #Writing
 
@@ -388,6 +365,18 @@ What is your favourite place to go to escape?
 ****
 
 *NEW*
+
+Write a review for a book you read
+
+Write about something interesting that happened 
+
+Make your own song and send it to us
+
+Come up with a name for a book you would write
+
+Create a short poem
+
+Write your own story with randomly found words in the dictionary
 
 
 #Online
@@ -434,6 +423,18 @@ Selfie skating at Fleetwood rec centre
 
 Take out a book from the library and take a selfie with it 
 
+make videos about what you are doing in the summer
+
+Do the harlem shake
+
+Pictures of yourself in a memorable place
+
+Make your own song and send it to us
+
+Cook something with your family members and send a picture to us
+
+
+
 #In the booklet
 
 *From last year*
@@ -459,3 +460,9 @@ Draw your Patronus, with your less dominant hand!
 ****
 
 *NEW*
+
+Go outside, draw what you see, 
+
+Draw and create your own princess
+
+
