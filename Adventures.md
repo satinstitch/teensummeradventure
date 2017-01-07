@@ -5,6 +5,8 @@
 ##Challenges should then be sorted into their category below
 
 
+Suggest that we should try to add some animal and environmental adventures
+
 
 
 Some people are not good in writing but could at representing things in different and new innovative ways
