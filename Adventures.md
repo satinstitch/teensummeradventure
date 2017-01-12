@@ -229,6 +229,7 @@ Cook/bake something new
 
 Do an origami project
 
+Enjoy the weather 
 
 #Reading
 
