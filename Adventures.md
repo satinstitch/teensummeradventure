@@ -384,6 +384,7 @@ Create a short poem
 Write your own story with randomly found words in the dictionary
 
 
+
 #Online
 
 *From Last Year*
@@ -414,11 +415,14 @@ Send us a picture of your library card placed somewhere not at home or in a libr
 
 Email us your favourite joke without swear words.
 
+Take a selfie outside one of our libraries. 
+
+
 ****
 
 *NEW*
 
-take a selfie in front of library
+Take a 'shelfie' in the library in front of a library shelf! 
 
 video tape yourself making a basketball shot at Fleetwood park
 
