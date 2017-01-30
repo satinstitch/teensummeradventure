@@ -233,6 +233,12 @@ Do an origami project
 
 Enjoy the weather 
 
+Go a day without spending anything.
+
+Start a budget (track your spending, etc.)
+
+
+
 #Reading
 
 *From Last Year*
@@ -271,7 +277,7 @@ Read a banned book.
 
 Read a new book
 
-
+Read a book featuring diverse characters (people of colour, LGBTQ, etc.), then give the title of the book and brief review.
 
 #In the Community
 
