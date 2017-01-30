@@ -184,6 +184,9 @@ Pick up a book from a genre that you have not tired
 
 Borrow movie from the library 
 
+Visit a Little Free Library and either donate a book to it or take one.
+
+Start up your own Little Free Library!
 
 #At Home
 
@@ -389,7 +392,9 @@ Create a short poem
 
 Write your own story with randomly found words in the dictionary
 
+Write a play and then perform it either yourself or with others
 
+Co-write a scene of dialogue with someone. 
 
 #Online
 
