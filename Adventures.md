@@ -344,7 +344,7 @@ Something that encourages to go out and is creative like mountain biking or skii
 
 Visit a store that you’ve never seen before
 
-
+Go to two of these free public festivals: Surrey Pride, Surrey Canada Day, Holi Colour Festival, Surrey Fusion Festival, Surrey Fest Downtown, White Rock Sea Festival, etc. 
 
 #Writing
 
