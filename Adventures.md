@@ -240,7 +240,7 @@ Go a day without spending anything.
 
 Start a budget (track your spending, etc.)
 
-
+Start a collection of something. 
 
 #Reading
 
@@ -281,6 +281,9 @@ Read a banned book.
 Read a new book
 
 Read a book featuring diverse characters (people of colour, LGBTQ, etc.), then give the title of the book and brief review.
+
+Create a bookmark - maybe the Library can have a bookmark crafting day? 
+
 
 #In the Community
 
@@ -345,6 +348,8 @@ Something that encourages to go out and is creative like mountain biking or skii
 Visit a store that you’ve never seen before
 
 Go to two of these free public festivals: Surrey Pride, Surrey Canada Day, Holi Colour Festival, Surrey Fusion Festival, Surrey Fest Downtown, White Rock Sea Festival, etc. 
+
+Find and collect a seashell or a rock that you think is beautiful or unique. 
 
 #Writing
 
@@ -453,6 +458,7 @@ Make your own song and send it to us
 
 Cook something with your family members and send a picture to us
 
+Create or update your resume/CV! 
 
 
 #In the booklet
