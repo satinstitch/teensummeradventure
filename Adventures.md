@@ -491,4 +491,4 @@ Go outside, draw what you see,
 
 Draw and create your own princess
 
-
+Write down a funny joke you heard or something that made you smile/laugh. 
