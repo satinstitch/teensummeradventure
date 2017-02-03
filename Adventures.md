@@ -13,7 +13,7 @@ Some people are not good in writing but could at representing things in differen
 
 Make your own hybrid of 2 or more animals, name it, etc
 
-Chubby bunny challenge and tell us who won!
+Chubby bunny challenge and tell us who won! -- this could pose a choking hazard, so I'd nix it
 
 Scavenger hunt
 
@@ -110,6 +110,8 @@ Observe a stranger and write a short story on what you think their life is like
 Recreate a book cover
 
 Find a tree and record any changes in it everyday day for a week
+
+Borrow a bird or plant identification guide from the library and go for a nature walk and see if you can identify anything! What did you identify? 
 
 Draw yourself, monster, a new logo for TSA, favourite sci-fi character, villain as a hero
 
