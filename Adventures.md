@@ -7,7 +7,27 @@
 
 Suggest that we should try to add some animal and environmental adventures
 
+learn an instrument
 
+eat 5 apples (tape seeds here)
+
+take skytrain somewhere
+
+learn the phonetic alphabet
+
+try new things
+
+learn the periodic table
+
+make your own poem
+
+read a certain book
+
+draw a picture of yourself
+
+collect something (coins? stamps?)
+
+FINISH the puzzle in the library
 
 Some people are not good in writing but could at representing things in different and new innovative ways
 
