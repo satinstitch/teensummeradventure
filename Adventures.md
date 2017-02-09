@@ -25,26 +25,16 @@ Free teen scavenger hunt, end of June to beginning of September. Pick up a hunt 
 
 Suggest that we should try to add some animal and environmental adventures
 
-learn an instrument
 
-eat 5 apples (tape seeds here)
 
-take skytrain somewhere
 
-learn the phonetic alphabet
 
-try new things
 
-learn the periodic table
 
-make your own poem
-
-read a certain book
 draw a picture of yourself
 
 collect something (coins? stamps?)
 
-FINISH the puzzle in the library
 
 Some people are not good in writing but could at representing things in different and new innovative ways
 
@@ -223,9 +213,11 @@ Pick up a book from a genre that you have not tired
 
 Borrow movie from the library 
 
-Visit a Little Free Library and either donate a book to it or take one.
+FINISH the puzzle in the library
 
-Start up your own Little Free Library!
+read a certain book
+
+
 
 #At Home
 
@@ -280,6 +272,17 @@ Go a day without spending anything.
 Start a budget (track your spending, etc.)
 
 Start a collection of something. 
+
+learn an instrument
+
+eat 5 apples (tape seeds here)
+
+learn the phonetic alphabet
+
+try new things
+
+learn the periodic table
+
 
 #Reading
 
@@ -390,6 +393,14 @@ Go to two of these free public festivals: Surrey Pride, Surrey Canada Day, Holi 
 
 Find and collect a seashell or a rock that you think is beautiful or unique. 
 
+take skytrain somewhere
+
+Visit a Little Free Library and either donate a book to it or take one.
+
+Start up your own Little Free Library!
+
+
+
 #Writing
 
 *From Last Year*
@@ -438,7 +449,11 @@ Write your own story with randomly found words in the dictionary
 
 Write a play and then perform it either yourself or with others
 
-Co-write a scene of dialogue with someone. 
+Co-write a scene of dialogue with someone
+
+make your own poem
+
+
 
 #Online
 
