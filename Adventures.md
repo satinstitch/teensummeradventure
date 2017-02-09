@@ -4,9 +4,26 @@
 
 ##Challenges should then be sorted into their category below
 
+Challenges from other organizations in Surrey: 
+
+Surrey Youth Sustainability Squad: 
+
+Invasive species removal parties! Hazelnut Community Park, 5-7 PM on the following dates: June 16th, July 
+4th, August 18th
+
+Historic Stewart Farm:
+
+Dominion Day Festival: Saturday, July 1st & Sunday July 2nd, 11 AM-3PM
+A City signature special event celebrating Canada's 150th birthday the old-fashioned way. Food trucks, live performances, re-enactors, face painting, heritage demos, and more! 
+
+Amazing Farm Scavenger Hunt, Sat. Augst 12th, 11 AM-3 PM A 10-station challenge competition with prizes! Challenges include old-fashioned laundry, scavenger hunt in the orchard, guessing vintage kitchen gadgets' functions, and floating a mini-boat! 
+
+Surrey Museum:
+
+Free teen scavenger hunt, end of June to beginning of September. Pick up a hunt to complete at the front desk! Features Canada 150 Exhibit clues. 
+
 
 Suggest that we should try to add some animal and environmental adventures
-
 
 
 
