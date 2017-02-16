@@ -10,7 +10,7 @@ Teen Summer Adventure (Tues. June 13th - Tues. Sept. 5th 2017)
 
 4. Complete as many adventures as you dare! 
 
-5. Submit your completed adventures in exchange for ticekts. See details under field guide and
+5. Submit your completed adventures in exchange for tickets. See details under field guide and
 email adventures.
 
 6. Each completed adventure is worth anywhere between 1 and 3 tickets.
@@ -45,7 +45,7 @@ Email Adventures
 
 These adventures are marked with the email symbol.
 
-Send your completed adventure to library-teens@surrey.ca with your name and Field Guide ID #. You will be automatically entered into prize draws. 
+Send your completed adventure to library-teens@surrey.ca along with your name and Field Guide ID #. You will be automatically entered into prize draws. 
 
  
 
