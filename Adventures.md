@@ -33,7 +33,6 @@ Suggest that we should try to add some animal and environmental adventures
 
 draw a picture of yourself
 
-Some people are not good in writing but could at representing things in different and new innovative ways ?
 
 Make your own hybrid of 2 or more animals, name it, etc
 
