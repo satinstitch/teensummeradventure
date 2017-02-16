@@ -33,7 +33,7 @@ Suggest that we should try to add some animal and environmental adventures
 
 draw a picture of yourself
 
-collect something (coins? stamps?)
+
 
 
 Some people are not good in writing but could at representing things in different and new innovative ways
