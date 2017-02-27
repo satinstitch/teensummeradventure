@@ -34,25 +34,13 @@ Suggest that we should try to add some animal and environmental adventures
 draw a picture of yourself
 
 
-
-
-Some people are not good in writing but could at representing things in different and new innovative ways
-
 Make your own hybrid of 2 or more animals, name it, etc
 
-Chubby bunny challenge and tell us who won! -- this could pose a choking hazard, so I'd nix it
-
-Scavenger hunt
+Scavenger hunt --- too vague
 
 Collect things from the wild to make a picture and send a picture of it through email 
 
 Send a picture of where you went … beach, park, mountain, doctor 
-
-Make a new friend
-
-Travel to a new City of Surrey walk your pet
-
-30 hour famine
 
 Video of yourself playing an instrument
 
@@ -62,25 +50,17 @@ Say the alphabet backwards
 
 Do a flip anywhere
 
-Find a quote on page 20 of Harry Potter and the Philosopher’s Stone 
-
 Run 5k 
 
 Go swimming in a lake in BC
 
-List 5 new quotes form any book that you like
-
-Eat till you are completely full then go outside
-
-Review last year’s homework for any subject 
-
-Enjoy the weather 
+List 5 new quotes from any book that you like
 
 Create a blackout poem using a newspaper
 
 Read a book recommended by a friend
 
-Read a book that your parent has read
+Read a book that someone has recommended 
 
 Take the sith book from a bookshelf turn to page 23 The fourth sentence is your topic to a short story
 
@@ -90,19 +70,13 @@ Surveys
 
 Puzzles
 
-Going out to certain interesting places through public transit
+Going out to certain interesting places through public transit --- vague
 
 Have activities where you can work as a group
 
 Do things that all kinds of people like to do (sporty artistic etc)
 
-Have more social sctivities rather than relating everything to academics
-
-Have special activities just for guys and just for girls
-
-Maybe some more to do with surrey like going to different places and getting stamps
-
-Spell your name using book titles
+Have more social sctivities rather than relating everything to academics --- vague 
 
 Read a book in a genre you haven’t explored
 
@@ -118,8 +92,6 @@ Jeopardy about books 1,2,3 place prizes
 
 Do challenges that will actually help you like visit your schools scholarship website
 
-Have fun challenges that involve you being outgoing and being with your friends for some of the challenges
-
 Photo scavenger hunt
 
 Try out new form of art
@@ -128,7 +100,7 @@ Join a festival/fair
 
 Make a button
 
-Say goodbye in 5 languages
+Write goodbye in 5 languages
 
 Do something you’ve always been afraid to do
 
@@ -144,7 +116,7 @@ Draw yourself, monster, a new logo for TSA, favourite sci-fi character, villain 
 
 Cook something new
 
-Visit a pool and make a friend
+Visit a pool
 
 If you can add one rules/law to society, what would you add?
 
@@ -160,11 +132,7 @@ Play a game of chess, checkers, nice men morries (sp?)
 
 What are your favourite, manga, books, “ships”, animals, mystical animals
 
-Take a picture of your first book as a child
-
 Create Blackout poem
-
-Visit an educational place
 
 What Greek god would you want as your parent?
 
@@ -172,6 +140,7 @@ What Viking god would you want as your parent?
 
 What is your horoscope? Do you fit in with it?
 
+Listen to a song and write a backstory to it. 
 
 
 
@@ -187,8 +156,6 @@ Subscribe to one of the Teen Newsletters on Surreylibraries.ca
 
 Download the Overdrive app from www.Surreylibraries.ca.
 
-Download a song from the freegal database at www.surreylibraries.ca.
-
 Borrow a DVD from the library.
 
 Take out 5 books at one time
@@ -197,7 +164,7 @@ Fill in the survey at the back of the booklet (feedback about the summer activit
 
 Create a poem using book spines, take a picture, (email/twitter, or IG?) Are we doing this as a separate contest?
 
-Join Camp NaNoWriMo. 
+Join Camp NaNoWriMo at nanowrimo.org for free! 
 
 Bring someone to the library who has never been to a Surrey Public Library branch.
 
@@ -209,13 +176,13 @@ What do we not have at the library that we really need?
 
 *NEW*
 
-Pick up a book from a genre that you have not tired
+Pick up a book from a genre that you have not tried
 
 Borrow movie from the library 
 
 FINISH the puzzle in the library
 
-read a certain book
+read a certain book --- vague 
 
 
 
@@ -265,23 +232,15 @@ Cook/bake something new
 
 Do an origami project
 
-Enjoy the weather 
-
 Go a day without spending anything.
 
 Start a budget (track your spending, etc.)
 
 Start a collection of something. 
 
-learn an instrument
+Learn the phonetic alphabet
 
-eat 5 apples (tape seeds here)
-
-learn the phonetic alphabet
-
-try new things
-
-learn the periodic table
+Memorize 10 elements from the periodic table 
 
 
 #Reading
@@ -369,11 +328,9 @@ Try a new restaurant
 
 Do a good deed, what was it 
 
-Camping, have a campfire
-
 Try to develop a new skill, take a class for it
 
-Go camping
+Go camping, and have a campfire
 
 Go to a bbq
 
@@ -383,11 +340,7 @@ Try a new sport
 
 Any events that you participated in, organized by City of Surrey
 
-Any community groups you are a part of 
-
-Something that encourages to go out and is creative like mountain biking or skiing
-
-Visit a store that you’ve never seen before
+Visit a local store you've never been to before
 
 Go to two of these free public festivals: Surrey Pride, Surrey Canada Day, Holi Colour Festival, Surrey Fusion Festival, Surrey Fest Downtown, White Rock Sea Festival, etc. 
 
@@ -396,9 +349,6 @@ Find and collect a seashell or a rock that you think is beautiful or unique.
 take skytrain somewhere
 
 Visit a Little Free Library and either donate a book to it or take one.
-
-Start up your own Little Free Library!
-
 
 
 #Writing
@@ -447,12 +397,7 @@ Create a short poem
 
 Write your own story with randomly found words in the dictionary
 
-Write a play and then perform it either yourself or with others
-
 Co-write a scene of dialogue with someone
-
-make your own poem
-
 
 
 #Online
@@ -460,8 +405,6 @@ make your own poem
 *From Last Year*
 
 Make a bookface.
-
-Make a trailer for a book you love. 
 
 Dress up as a character and send a picture (email - can encourage to share on IG as well but verification has to be email) 
 
@@ -475,7 +418,7 @@ Create a ship name for two of your favourite characters.
 
 Tell us the title of a book or graphic novel that the library should have but doesn't.
 
-Send us the titles of two ebooks you can download from Surrey Libraries.
+Send us the titles of two Eaudio books you can download from Surrey Libraries.
 
 Take a screen break for 24 hours. Tell us what it was like. 
 
@@ -494,17 +437,13 @@ Take a selfie outside one of our libraries.
 
 Take a 'shelfie' in the library in front of a library shelf! 
 
-video tape yourself making a basketball shot at Fleetwood park
+video tape yourself making a basketball shot 
 
-selfie of yourself in the Fleetwood pool
-
-Selfie skating at Fleetwood rec centre
+Selfie skating at  rec centre
 
 Take out a book from the library and take a selfie with it 
 
-make videos about what you are doing in the summer
-
-Do the harlem shake
+Create a photo montage at the end of the summer
 
 Pictures of yourself in a memorable place
 
@@ -543,6 +482,6 @@ Draw your Patronus, with your less dominant hand!
 
 Go outside, draw what you see, 
 
-Draw and create your own princess
+Draw and create your own fictional character
 
-Write down a funny joke you heard or something that made you smile/laugh. 
+Write down a funny joke you heard or something that made you smile/laugh. --- same as email
