@@ -1,20 +1,34 @@
 Notes from meeting:
 Cutting total number of challenges - 75 total > choosing approximately 10 each ASAP (Clear area of ones you don't want and committ changes - need to assign points value and have wording how you want it)
+
 Anneka is emailing us the points criteria for assigning value per challenges 
+
 Use 1/4 to 1/3 of last year's challenges
+
 For rest, to use new challenges
+
 Last year's challenges can be slightly tweaked or updated 
-Less art throughout the book - so colour the whole book is less challenging 
+
+Less art throughout the book - so colour the whole book is less challenging
+
 Ellen - In the Community & Reading
+
 Anneka - In the booklet, Online 
+
 Allan - Writing 
+
 Joy - At Home 
+
 Claire - In the Library 
+
 Crossword - Canadian Themed
 Farley Mowat - outdoors 
 
 Bookmark challenge - can be passive program at branches, or actual crafting program
+
 Take a picture with your bookmark in a book - Part of Claire's category 
+
+
 
 #Challenge ideas
 
