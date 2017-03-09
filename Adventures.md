@@ -4,7 +4,7 @@
 
 ##Challenges should then be sorted into their category below
 
-Challenges from other organizations in Surrey: 
+**Challenges from other organizations in Surrey: 
 
 Surrey Youth Sustainability Squad: 
 
@@ -31,28 +31,22 @@ Suggest that we should try to add some animal and environmental adventures
 
 
 
-draw a picture of yourself
 
 
-Make your own hybrid of 2 or more animals, name it, etc
 
-Scavenger hunt --- too vague
 
-Collect things from the wild to make a picture and send a picture of it through email 
 
-Send a picture of where you went … beach, park, mountain, doctor 
 
-Video of yourself playing an instrument
 
-Video of yourself making a basketball shot
+
 
 Say the alphabet backwards
 
 Do a flip anywhere
 
 Run 5k 
+ n
 
-Go swimming in a lake in BC
 
 List 5 new quotes from any book that you like
 
@@ -70,13 +64,11 @@ Surveys
 
 Puzzles
 
-Going out to certain interesting places through public transit --- vague
 
 Have activities where you can work as a group
 
 Do things that all kinds of people like to do (sporty artistic etc)
 
-Have more social sctivities rather than relating everything to academics --- vague 
 
 Read a book in a genre you haven’t explored
 
@@ -128,19 +120,17 @@ Create a cipher. Write the code in the box below of what each letter represents.
 
 Create a Sudoku 
 
-Play a game of chess, checkers, nice men morries (sp?)
+
 
 What are your favourite, manga, books, “ships”, animals, mystical animals
 
 Create Blackout poem
 
-What Greek god would you want as your parent?
 
-What Viking god would you want as your parent?
 
-What is your horoscope? Do you fit in with it?
 
-Listen to a song and write a backstory to it. 
+
+
 
 
 
@@ -230,9 +220,9 @@ Bake a goodie
 
 Cook/bake something new
 
-Do an origami project
+**Do an origami project**
 
-Go a day without spending anything.
+**Go a day without spending anything**
 
 Start a budget (track your spending, etc.)
 
@@ -241,6 +231,10 @@ Start a collection of something.
 Learn the phonetic alphabet
 
 Memorize 10 elements from the periodic table 
+
+Listen to a song and write a backstory to it
+
+Play a game of chess, checkers, nine mens morris (sp?)
 
 
 #Reading
@@ -281,9 +275,9 @@ Read a banned book.
 
 Read a new book
 
-Read a book featuring diverse characters (people of colour, LGBTQ, etc.), then give the title of the book and brief review.
+**Read a book featuring diverse characters (people of colour, LGBTQ, etc.), then give the title of the book and brief review.
 
-Create a bookmark - maybe the Library can have a bookmark crafting day? 
+**Create a bookmark - maybe the Library can have a bookmark crafting day? 
 
 
 #In the Community
@@ -322,7 +316,7 @@ Visit the historic Stewart Farm.
 
 *NEW*
 
-Visit a new beach
+**Visit a new beach
 
 Try a new restaurant 
 
@@ -332,7 +326,7 @@ Try to develop a new skill, take a class for it
 
 Go camping, and have a campfire
 
-Go to a bbq
+**Go to a bbq
 
 Watch a movie in the cinemas
 
@@ -342,20 +336,22 @@ Any events that you participated in, organized by City of Surrey
 
 Visit a local store you've never been to before
 
-Go to two of these free public festivals: Surrey Pride, Surrey Canada Day, Holi Colour Festival, Surrey Fusion Festival, Surrey Fest Downtown, White Rock Sea Festival, etc. 
+**Go to two of these free public festivals: Surrey Pride, Surrey Canada Day, Holi Colour Festival, Surrey Fusion Festival, Surrey Fest Downtown, White Rock Sea Festival, etc. 
 
 Find and collect a seashell or a rock that you think is beautiful or unique. 
 
 take skytrain somewhere
 
-Visit a Little Free Library and either donate a book to it or take one.
+**Visit a Little Free Library and either donate a book to it or take one.
+
+Go swimming in a lake in BC
 
 
 #Writing
 
 *From Last Year*
 
-Write a poem about something.
+**Write a poem about something.
 
 Write a piece of fan fiction. 
 
@@ -373,7 +369,7 @@ Create your own world. Describe it!
 
 Flip to page 25 of your current read. Use words or phrases from that page to create a poem.
 
-Write a story in 140 characters or less
+**Write a story in 140 characters or less
 
 Flip to a random page of the book you are currently reading. Using the last paragraph on that page, create a new short story. (email)
 
@@ -387,11 +383,11 @@ What is your favourite place to go to escape?
 
 Write a review for a book you read
 
-Write about something interesting that happened 
+**Write about something interesting that happened 
 
 Make your own song and send it to us
 
-Come up with a name for a book you would write
+**Come up with a name for a book you would write
 
 Create a short poem
 
@@ -404,7 +400,7 @@ Co-write a scene of dialogue with someone
 
 *From Last Year*
 
-Make a bookface.
+**Make a bookface.
 
 Dress up as a character and send a picture (email - can encourage to share on IG as well but verification has to be email) 
 
@@ -416,17 +412,17 @@ Tell us your Hogwarts House. Or, are you a hybrid house member?
 
 Create a ship name for two of your favourite characters.
 
-Tell us the title of a book or graphic novel that the library should have but doesn't.
+**Tell us the title of a book or graphic novel that the library should have but doesn't.
 
 Send us the titles of two Eaudio books you can download from Surrey Libraries.
 
-Take a screen break for 24 hours. Tell us what it was like. 
+**Take a screen break for 24 hours. Tell us what it was like. 
 
 Tell us about your three favourite things to do in Surrey.
 
-Send us a picture of your library card placed somewhere not at home or in a library. 
+**Send us a picture of your library card placed somewhere not at home or in a library. 
 
-Email us your favourite joke without swear words.
+**Email us your favourite joke without swear words.
 
 Take a selfie outside one of our libraries. 
 
@@ -441,7 +437,7 @@ video tape yourself making a basketball shot
 
 Selfie skating at  rec centre
 
-Take out a book from the library and take a selfie with it 
+**Take out a book from the library and take a selfie with it 
 
 Create a photo montage at the end of the summer
 
@@ -449,24 +445,30 @@ Pictures of yourself in a memorable place
 
 Make your own song and send it to us
 
-Cook something with your family members and send a picture to us
+**Cook something with your family members and send a picture to us
 
 Create or update your resume/CV! 
+
+Collect things from the wild to make a picture and send a picture of it through email 
+
+Send a picture of where you went … beach, park, mountain, doctor 
+
+Video of yourself playing an instrument
 
 
 #In the booklet
 
 *From last year*
 
-Complete a crossword
+**Complete a crossword
 
-Finish the maze
+**Finish the maze
 
-Colour this whole booklet
+**Colour this whole booklet
 
-fill this page with doodles/Zentangle
+**fill this page with doodles/Zentangle
 
-Complete the wordsearch
+**Complete the wordsearch
 
 Design a new book cover for a book you love. Draw it here.
 
@@ -485,3 +487,14 @@ Go outside, draw what you see,
 Draw and create your own fictional character
 
 Write down a funny joke you heard or something that made you smile/laugh. --- same as email
+
+What is your horoscope? Do you fit in with it?
+
+What Greek god would you want as your parent?
+
+What Viking god would you want as your parent?
+
+draw a picture of yourself
+
+Make your own hybrid of 2 or more animals, name it, etc
+
