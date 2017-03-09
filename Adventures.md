@@ -40,91 +40,31 @@ Suggest that we should try to add some animal and environmental adventures
 
 
 
-Say the alphabet backwards
-
-Do a flip anywhere
-
-Run 5k 
- n
 
 
-List 5 new quotes from any book that you like
 
-Create a blackout poem using a newspaper
-
-Read a book recommended by a friend
-
-Read a book that someone has recommended 
-
-Take the sith book from a bookshelf turn to page 23 The fourth sentence is your topic to a short story
-
-More crosswords
-
-Surveys
-
-Puzzles
-
-
-Have activities where you can work as a group
-
-Do things that all kinds of people like to do (sporty artistic etc)
-
-
-Read a book in a genre you haven’t explored
-
-Write a letter to an author you like
-
-Take a quiz on pottermore
-
-Name 2 2017 hit songs
-
-Blank page to draw something
-
-Jeopardy about books 1,2,3 place prizes
-
-Do challenges that will actually help you like visit your schools scholarship website
-
-Photo scavenger hunt
-
-Try out new form of art
-
-Join a festival/fair
-
-Make a button
-
-Write goodbye in 5 languages
 
 Do something you’ve always been afraid to do
 
-Observe a stranger and write a short story on what you think their life is like
-
-Recreate a book cover
-
-Find a tree and record any changes in it everyday day for a week
-
-Borrow a bird or plant identification guide from the library and go for a nature walk and see if you can identify anything! What did you identify? 
-
-Draw yourself, monster, a new logo for TSA, favourite sci-fi character, villain as a hero
-
-Cook something new
-
-Visit a pool
-
-If you can add one rules/law to society, what would you add?
-
-If you can rename all 13 provinces and territories of Canada, what would you name them?
-
-Chose a city. Pretend you had lived there all your life and write a paragraph of hpw your lifestyle is there.
-
-Create a cipher. Write the code in the box below of what each letter represents.
-
-Create a Sudoku 
 
 
 
-What are your favourite, manga, books, “ships”, animals, mystical animals
 
-Create Blackout poem
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
@@ -172,8 +112,9 @@ Borrow movie from the library
 
 FINISH the puzzle in the library
 
-read a certain book --- vague 
+**Create a bookmark - maybe the Library can have a bookmark crafting day? 
 
+Make a button
 
 
 #At Home
@@ -236,6 +177,16 @@ Listen to a song and write a backstory to it
 
 Play a game of chess, checkers, nine mens morris (sp?)
 
+Cook something new
+
+Try out new form of art
+
+Say the alphabet backwards
+
+Do a flip anywhere
+
+Run 5k 
+
 
 #Reading
 
@@ -277,7 +228,11 @@ Read a new book
 
 **Read a book featuring diverse characters (people of colour, LGBTQ, etc.), then give the title of the book and brief review.
 
-**Create a bookmark - maybe the Library can have a bookmark crafting day? 
+Read a book recommended by a friend
+
+Read a book that someone has recommended 
+
+Read a book in a genre you haven’t explored
 
 
 #In the Community
@@ -346,6 +301,14 @@ take skytrain somewhere
 
 Go swimming in a lake in BC
 
+Find a tree and record any changes in it everyday day for a week
+
+Borrow a bird or plant identification guide from the library and go for a nature walk and see if you can identify anything! What did you identify? 
+
+Join a festival/fair
+
+Visit a pool
+
 
 #Writing
 
@@ -377,6 +340,8 @@ Using book characters, create your dream team (5 people) to help you survive the
 
 What is your favourite place to go to escape?
 
+Observe a stranger and write a short story on what you think their life is like
+
 ****
 
 *NEW*
@@ -394,6 +359,15 @@ Create a short poem
 Write your own story with randomly found words in the dictionary
 
 Co-write a scene of dialogue with someone
+
+Take the sith book from a bookshelf turn to page 23 The fourth sentence is your topic to a short story
+
+Chose a city. Pretend you had lived there all your life and write a paragraph of hpw your lifestyle is there.
+
+Write a letter to an author you like
+
+Write goodbye in 5 languages
+
 
 
 #Online
@@ -455,6 +429,21 @@ Send a picture of where you went … beach, park, mountain, doctor
 
 Video of yourself playing an instrument
 
+**List 5 new quotes from any book that you like
+
+Create Blackout poem
+
+If you can add one rules/law to society, what would you add?
+
+If you can rename all 13 provinces and territories of Canada, what would you name them?
+
+Take a quiz on pottermore send us your results
+
+Recreate a book cover
+
+Name 2 2017 hit songs
+
+
 
 #In the booklet
 
@@ -498,3 +487,16 @@ draw a picture of yourself
 
 Make your own hybrid of 2 or more animals, name it, etc
 
+What are your favourite, manga, books, “ships”, animals, mystical animals
+
+**Create a cipher. Write the code in the box below of what each letter represents.
+
+Create a Sudoku 
+
+More crosswords
+
+Surveys
+
+Puzzles
+
+Draw yourself, monster, a new logo for TSA, favourite sci-fi character, villain as a hero
