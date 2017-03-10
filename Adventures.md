@@ -297,62 +297,25 @@ Borrow a bird or plant identification guide from the library and go for a nature
 
 #Writing
 
-*From Last Year*
+Write a review for a book you read and email it to us - 3 tickets
 
-**Write a poem about something.**
+Write a newspaper article, with a catchy headline, about something that happened to you - 3 tickets
 
-Write a piece of fan fiction. 
+Co-write a scene of dialogue with someone - 2 tickets
 
-Write an alternate ending to a book or movie.
+Write a poem - 2 tickets
 
-Write the word 'library' in 5 different languages
+Write someone a letter - 2 tickets
 
-Write a book review (email).
+Write down a new recipe you've learned - 2 tickets
 
-Write a journal entry (in the passport).
+Write goodbye in 5 languages - 1 ticket
 
-Write and draw your own comic or page of a graphic novel
+If someone wrote a book about your life (a biography), what would the title be? - 1 ticket
 
-Create your own world. Describe it!
+Write a short paragraph aboutyour favourite summer activity - 1 ticket
 
-Flip to page 25 of your current read. Use words or phrases from that page to create a poem.
-
-**Write a story in 140 characters or less**
-
-Flip to a random page of the book you are currently reading. Using the last paragraph on that page, create a new short story. (email)
-
-Using book characters, create your dream team (5 people) to help you survive the apocalypse
-
-What is your favourite place to go to escape?
-
-Observe a stranger and write a short story on what you think their life is like
-
-****
-
-*NEW*
-
-Write a review for a book you read
-
-**Write about something interesting that happened **
-
-Make your own song and send it to us
-
-**Come up with a name for a book you would write**
-
-Create a short poem
-
-Write your own story with randomly found words in the dictionary
-
-Co-write a scene of dialogue with someone
-
-Take the sith book from a bookshelf turn to page 23 The fourth sentence is your topic to a short story
-
-Chose a city. Pretend you had lived there all your life and write a paragraph of hpw your lifestyle is there.
-
-Write a letter to an author you like
-
-Write goodbye in 5 languages
-
+Write a To-Do list for a superhero - 1 ticket 
 
 
 #Online
