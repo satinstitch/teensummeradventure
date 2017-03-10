@@ -62,7 +62,7 @@ Suggest that we should try to add some animal and environmental adventures
 
 
 
-Do something you’ve always been afraid to do
+
 
 
 
@@ -188,8 +188,6 @@ Run 5k
 
 
 #Reading
-
-*From Last Year*
 
 Re-read one of your favourite books. What was it, and is it just as good as you remember it? 
 
