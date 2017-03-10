@@ -68,7 +68,7 @@ Suggest that we should try to add some animal and environmental adventures
 
 
 
-
+ 
 
 
 
@@ -107,46 +107,27 @@ Do something you’ve always been afraid to do
 
 
 #At the Library
+I ONLY CHOSE 9 HOPE THAT'S OK 
 
-*From Last Year*
+Attend a Teen Summer Adventure program at the library - 3 tickets 
 
-Attend a library program.
+Visit a library branch not in your home community - 2 tickets 
 
-Visit a library branch (each branch =)
+Subscribe to one of the Teen Newsletters on Surreylibraries.ca - 1 ticket 
 
-Subscribe to one of the Teen Newsletters on Surreylibraries.ca
+Checkout a magazine on the Zinio app from www.Surreylibraries.ca - 1 ticket 
 
-Download the Overdrive app from www.Surreylibraries.ca.
+Take out any 5 items at one time - 1 ticket 
 
-Borrow a DVD from the library.
+Fill in the survey at the back of the booklet (feedback about the summer activities/programs) - 3 tickets 
 
-Take out 5 books at one time
+Show someone the surreylibraries.ca website who has never used it before - 1 ticket 
 
-Fill in the survey at the back of the booklet (feedback about the summer activities/programs)
+Pick up a book from a genre that you have not tried - 1 ticket 
 
-Create a poem using book spines, take a picture, (email/twitter, or IG?) Are we doing this as a separate contest?
+**Create a bookmark - see website for details: bookmark programs and materials available at each branch!** - 2 tickets 
 
-Join Camp NaNoWriMo at nanowrimo.org for free! 
 
-Bring someone to the library who has never been to a Surrey Public Library branch.
-
-Bring a friend to the library and help them get a library card
-
-What do we not have at the library that we really need?
-
-****
-
-*NEW*
-
-Pick up a book from a genre that you have not tried
-
-Borrow movie from the library 
-
-FINISH the puzzle in the library
-
-**Create a bookmark - maybe the Library can have a bookmark crafting day?** 
-
-Make a button
 
 
 #At Home
