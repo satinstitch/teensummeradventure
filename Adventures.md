@@ -38,21 +38,7 @@ Take a picture with your bookmark in a book - Part of Claire's category
 
 **Challenges from other organizations in Surrey:** 
 
-Surrey Youth Sustainability Squad: 
-
-Invasive species removal parties! Hazelnut Community Park, 5-7 PM on the following dates: June 16th, July 
-4th, August 18th
-
-Historic Stewart Farm:
-
-Dominion Day Festival: Saturday, July 1st & Sunday July 2nd, 11 AM-3PM
-A City signature special event celebrating Canada's 150th birthday the old-fashioned way. Food trucks, live performances, re-enactors, face painting, heritage demos, and more! 
-
-Amazing Farm Scavenger Hunt, Sat. Augst 12th, 11 AM-3 PM A 10-station challenge competition with prizes! Challenges include old-fashioned laundry, scavenger hunt in the orchard, guessing vintage kitchen gadgets' functions, and floating a mini-boat! 
-
-Surrey Museum:
-
-Free teen scavenger hunt, end of June to beginning of September. Pick up a hunt to complete at the front desk! Features Canada 150 Exhibit clues. 
+ 
 
 
 Suggest that we should try to add some animal and environmental adventures
@@ -205,47 +191,40 @@ Run 5k
 
 *From Last Year*
 
-Read a classic.
+Re-read one of your favourite books. What was it, and is it just as good as you remember it? 
 
-Read a book by a Canadian author
+Read a book by an indigenous author. What was it? 
 
 Read a book of poetry.
 
 Read a graphic novel.
 
-Read a favourite book from your childhood.
+Read a play, and then choose a scene to read out loud with friends playing different parts. What play did you choose? 
 
-Read a book by choosing it solely by its cover.
+Read a book about a historical figure. What was the book called? 
 
-Read a book that's also been made into a movie.
+Read a book about an endangered species or ecosystem. What was it called?
 
-Read a book you got from a print or online booklist. 
+Read a book about survival under challenging conditions. What was the title? 
 
-Read a book which won the Michael L. Printz award (best book published for teens).
+Read a book a librarian recommended to you. Which book was it?
 
-Read an Ebook
+Read a book which encourages you to be an activist. What was the book called?
+
+Listen to an audiobook.
 
 Read a whole series from beginning to end (at least 3 books in the series)
 
 Read a non-fiction book.
 
-Read a chapter of a book out loud to someone.
+Read a book from beginning to end within 24 hours (minimum 150 pages). 
 
 Read a banned book. 
 
-****
-
-*NEW*
-
-Read a new book
-
 **Read a book featuring diverse characters (people of colour, LGBTQ, etc.), then give the title of the book and brief review.**
 
-Read a book recommended by a friend
 
-Read a book that someone has recommended 
-
-Read a book in a genre you haven’t explored
+Read a book in a genre you generally don't like. What was the title and author? 
 
 
 #In the Community
@@ -257,8 +236,6 @@ Volunteer in the community. Tell us where:
 Make a donation to a charity, like the Food Bank. 
 
 Go swimming. 
-
-Visit a park you've never been to before. 
 
 Leave a postcard or other object with a note on a bench.
 
@@ -272,43 +249,42 @@ Go to a beach. Which beach did you go to?
 
 Build a fort. Take a picture and send it to us.
 
-Go for a walk with your friend or your pet.
-
-Take transit somewhere new. Where did you go?
 
 Go on a walking tour. What tour did you go on?
 
-Visit the historic Stewart Farm. 
 
-****
+Surrey Youth Sustainability Squad: 
 
-*NEW*
+Invasive species removal parties! Hazelnut Community Park, 5-7 PM on the following dates: June 16th, July 
+4th, August 18th
+
+Historic Stewart Farm:
+
+Dominion Day Festival: Saturday, July 1st & Sunday July 2nd, 11 AM-3PM
+A City signature special event celebrating Canada's 150th birthday the old-fashioned way. Food trucks, live performances, re-enactors, face painting, heritage demos, and more! 
+
+Amazing Farm Scavenger Hunt, Sat. Augst 12th, 11 AM-3 PM A 10-station challenge competition with prizes! Challenges include old-fashioned laundry, scavenger hunt in the orchard, guessing vintage kitchen gadgets' functions, and floating a mini-boat! 
+
+Surrey Museum:
+
+Free teen scavenger hunt, end of June to beginning of September. Pick up a hunt to complete at the front desk! Features Canada 150 Exhibit clues.
+
 
 **Visit a new beach**
 
 Try a new restaurant 
 
-Do a good deed, what was it 
+Do a good deed. What was it? 
 
-Try to develop a new skill, take a class for it
-
-Go camping, and have a campfire
-
-**Go to a bbq**
-
-Watch a movie in the cinemas
-
-Try a new sport
+Try a new sport. What was it and would you do it again? 
 
 Any events that you participated in, organized by City of Surrey
 
-Visit a local store you've never been to before
+Visit a local store you've never been to before.
 
 **Go to two of these free public festivals: Surrey Pride, Surrey Canada Day, Holi Colour Festival, Surrey Fusion Festival, Surrey Fest Downtown, White Rock Sea Festival, etc. **
 
-Find and collect a seashell or a rock that you think is beautiful or unique. 
-
-take skytrain somewhere
+Find and collect a seashell or a rock that you think is beautiful or unique. Take a picture of it and #SLTeenSummer
 
 **Visit a Little Free Library and either donate a book to it or take one.**
 
@@ -318,9 +294,7 @@ Find a tree and record any changes in it everyday day for a week
 
 Borrow a bird or plant identification guide from the library and go for a nature walk and see if you can identify anything! What did you identify? 
 
-Join a festival/fair
 
-Visit a pool
 
 
 #Writing
