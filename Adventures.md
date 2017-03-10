@@ -397,48 +397,23 @@ Name 2 2017 hit songs
 
 *From last year*
 
-**Complete a crossword**
+**Complete a crossword** 2 tickets
 
-**Finish the maze**
+**Finish the maze** 1 ticket
 
-**Colour this whole booklet**
+**Colour this whole booklet** 3 tickets
 
-**fill this page with doodles/Zentangle**
+**fill this page with doodles/Zentangle** 1 ticket
 
-**Complete the wordsearch**
+**Complete the wordsearch** 1 tickets
 
-Design a new book cover for a book you love. Draw it here.
+Go outside, draw the first thing that catches your eye 2 tickets 
 
-Include line art that only covers half the page--the teens would finish the line drawing however way they want to. 
+Draw your own hybrid of 2 or more animals, and give it a name 2 tickets
 
-Draw your self-portrait--blindfolded! 
-
-Draw your Patronus, with your less dominant hand! 
-
-****
-
-*NEW*
-
-Go outside, draw what you see, 
-
-Draw and create your own fictional character
-
-Write down a funny joke you heard or something that made you smile/laugh. --- same as email
-
-What is your horoscope? Do you fit in with it?
-
-What Greek god would you want as your parent?
-
-What Viking god would you want as your parent?
-
-draw a picture of yourself
-
-Make your own hybrid of 2 or more animals, name it, etc
+**Create a cipher. Write the code in the box below of what each letter represents.** 2 tickets
 
 What are your favourite, manga, books, “ships”, animals, mystical animals
-
-**Create a cipher. Write the code in the box below of what each letter represents.**
-
 Create a Sudoku 
 
 More crosswords
