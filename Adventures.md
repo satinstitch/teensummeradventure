@@ -120,31 +120,27 @@ Pick up a book from a genre that you have not tried - 1 ticket
 
 *From Last Year*
 
-Cook a foreign meal use a cookbook from the library, or from recipes online. 
+Try out a new exercise or sport you've never tried before. - 2 tickets
 
-Try out a new exercise or sport you've never tried before. 
+Use the sidewalk as your canvas and draw with coloured chalk. - 2 tickets
 
-Use the sidewalk as your canvas with coloured chalk. 
+Play a board game. Which one did you play? - 1 ticket
 
-Play a board game.
+Learn how to say a hello in 5 different languages. - 2 tickets
 
-Learn how to say a hello in 5 different languages
+Water a dry plant or tree that's near your neighbourhood. - 2 tickets
 
-Paint on concrete with water. 
+Draw your favourite character. - 3 tickets
 
-Plant something in the ground. 
+Discover a new video game, what is it? - 1 ticket
 
-Make fan art (scene/character from book)
+Find a book or DVD that will help you try a new craft. What did you try and how did it go? - 3 tickets 
 
-Discover a new video game, what is it?
+Watch a YouTube video on life hacks and try one. What was it and did it work? - 3 tickets
 
-Find a book or DVD that will help you try a new skill, sport, craft, etc. Try to do that thing. What did you try and how did it go?
+What is your astrological sign? - 1 ticket
 
-Try a life hack. What was it and did it work?
-
-Hold a watermelon seed spitting contest with your friends, who won?
-
-Find your zodiac constellation. Draw it here. 
+How many types of wildlife can you spot outside your window? - 2 tickets
 
 ****
 
