@@ -189,108 +189,69 @@ Run 5k
 
 #Reading
 
-Re-read one of your favourite books. What was it, and is it just as good as you remember it? 
+Read a book (fiction or non-fiction) written by an immigrant or is about the immigration/refugee experience. 
 
 Read a book by an indigenous author. What was it? 
 
-Read a book of poetry.
+Read a book of poetry translated from another language. 
 
-Read a graphic novel.
+Read a graphic novel featuring a female lead. What was it?  
 
-Read a play, and then choose a scene to read out loud with friends playing different parts. What play did you choose? 
-
-Read a book about a historical figure. What was the book called? 
+Read a non-fiction book about technology. What was it? 
 
 Read a book about an endangered species or ecosystem. What was it called?
 
-Read a book about survival under challenging conditions. What was the title? 
+Read a book written by a Canadian published more than fifty years ago. What was it? 
 
 Read a book a librarian recommended to you. Which book was it?
 
 Read a book which encourages you to be an activist. What was the book called?
 
-Listen to an audiobook.
-
-Read a whole series from beginning to end (at least 3 books in the series)
-
-Read a non-fiction book.
+Listen to an audiobook. What was it? 
 
 Read a book from beginning to end within 24 hours (minimum 150 pages). 
 
-Read a banned book. 
+Read a banned or frequently challenged book. Waht was it? Submit a brief review to library-teens@surrey.ca
 
-**Read a book featuring diverse characters (people of colour, LGBTQ, etc.), then give the title of the book and brief review.**
+Read a book featuring diverse characters (people of colour, LGBTQ, etc.), then give the title of the book and submit a brief review to library-teens@surrey.ca.
 
-
-Read a book in a genre you generally don't like. What was the title and author? 
 
 
 #In the Community
 
 *From Last Year*
 
-Volunteer in the community. Tell us where:
-
-Make a donation to a charity, like the Food Bank. 
-
-Go swimming. 
+Volunteer in the community. Tell us where.
 
 Leave a postcard or other object with a note on a bench.
 
-Visit one of the outdoor festivals or events in Surrey.
-
-Visit a museum or art gallery. Tell us where you went.
-
-Attend a live performance (theatre, concert, other). What did you see?
-
-Go to a beach. Which beach did you go to?
-
-Build a fort. Take a picture and send it to us.
-
-
-Go on a walking tour. What tour did you go on?
-
-
 Surrey Youth Sustainability Squad: 
 
-Invasive species removal parties! Hazelnut Community Park, 5-7 PM on the following dates: June 16th, July 
+Attend an invasive species removal parties! Hazelnut Community Park, 5-7 PM on the following dates: June 16th, July 
 4th, August 18th
 
 Historic Stewart Farm:
 
-Dominion Day Festival: Saturday, July 1st & Sunday July 2nd, 11 AM-3PM
+Visit the farm during the Dominion Day Festival: Saturday, July 1st & Sunday July 2nd, 11 AM-3PM
 A City signature special event celebrating Canada's 150th birthday the old-fashioned way. Food trucks, live performances, re-enactors, face painting, heritage demos, and more! 
 
-Amazing Farm Scavenger Hunt, Sat. Augst 12th, 11 AM-3 PM A 10-station challenge competition with prizes! Challenges include old-fashioned laundry, scavenger hunt in the orchard, guessing vintage kitchen gadgets' functions, and floating a mini-boat! 
+Take part in the Amazing Farm Scavenger Hunt, Sat. Augst 12th, 11 AM-3 PM A 10-station challenge competition with prizes! Challenges include old-fashioned laundry, scavenger hunt in the orchard, guessing vintage kitchen gadgets' functions, and floating a mini-boat! 
 
 Surrey Museum:
 
-Free teen scavenger hunt, end of June to beginning of September. Pick up a hunt to complete at the front desk! Features Canada 150 Exhibit clues.
+Complete the free teen scavenger hunt, end of June to beginning of September. Pick up a hunt to complete at the front desk! Features Canada 150 Exhibit clues.
 
+Go to the Surrey Arts Centre/Gallery and see the exhibits or attend a free youth art program. Take a picture of your favourite piece of artwork or a piece of artwork you created there. 
 
-**Visit a new beach**
-
-Try a new restaurant 
-
-Do a good deed. What was it? 
-
-Try a new sport. What was it and would you do it again? 
-
-Any events that you participated in, organized by City of Surrey
-
-Visit a local store you've never been to before.
-
-**Go to two of these free public festivals: Surrey Pride, Surrey Canada Day, Holi Colour Festival, Surrey Fusion Festival, Surrey Fest Downtown, White Rock Sea Festival, etc. **
+Go to one of these free public festivals: Surrey Pride, Surrey Canada Day, Holi Colour Festival, Surrey Fusion Festival, Surrey Fest Downtown, White Rock Sea Festival, etc.
 
 Find and collect a seashell or a rock that you think is beautiful or unique. Take a picture of it and #SLTeenSummer
 
-**Visit a Little Free Library and either donate a book to it or take one.**
+Visit a Little Free Library and either donate a book to it or take one.Take a pic of the Little Free Library and #SLTeenSummer.
 
-Go swimming in a lake in BC
+Find a tree and record any changes in it everyday day for a week. Take a picture(s) of it and #SLTeenSummer.
 
-Find a tree and record any changes in it everyday day for a week
-
-Borrow a bird or plant identification guide from the library and go for a nature walk and see if you can identify anything! What did you identify? 
+Borrow a bird or plant identification guide from the library and go for a nature walk and see if you can identify any plants or birds! What did you identify? 
 
 
 
