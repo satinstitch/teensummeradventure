@@ -6,14 +6,12 @@ Teen Summer Adventure (Tues. June 13th - Tues. Sept. 5th 2017)
 
 1. Put your Field Guide ID number on the front of your field guide.
 
-2. Read through the list of adventures in the field guide. 
+2. Complete as many adventures as you dare! 
 
-4. Complete as many adventures as you dare! 
-
-5. Submit your completed adventures in exchange for tickets. See details under field guide and
+3. Submit your completed adventures in exchange for tickets. See details under field guide and
 email adventures.
 
-6. Each completed adventure is worth anywhere between 1 and 3 tickets.
+4. Each completed adventure is worth between 1 and 3 tickets.
 Your tickets count toward weekly prize draws at your local branch AND the Grand Prize draw at
 summer’s end.
 
