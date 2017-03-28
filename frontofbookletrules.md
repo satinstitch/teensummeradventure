@@ -35,7 +35,7 @@ Take your field guide wherever you go. You never know when it'll come in handy!
 Field Guide Adventures
 
 Bring your field guide to your local library branch. Visit often so you can be entered in weekly prizes! Any info desk staff member can sign off on your completed adventures. They will give you the tickets you have earned for the
-prize draw. Write your Field Guide ID number on each ticket and place in ballot box. We will contact you if you win a prize. Good luck! 
+prize draw. Write your Field Guide ID number on each ticket and place in ballot box. If you do a community challenge, remember to ask staff running that event to sign off on the 'community challenge' box. Then, come back to the library, and we'll give you tickets for that challenge.
 
  
 
